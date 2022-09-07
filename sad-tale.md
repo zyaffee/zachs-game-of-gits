@@ -4,3 +4,5 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned Stark went to King's landing where he made lots of friends and lived
 happily ever after...  He definitely didn't get axe murdered.
+
+Dude had a great time and lots of friends and started a family business that lasted generations.
